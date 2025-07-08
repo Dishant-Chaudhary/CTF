@@ -70,7 +70,7 @@ Blitz{ID0R_1s_FUN_w1TH_N3g4t1v3_IDs!?}
 
 ### 👥 Team: 0bscuri7y
 
-- Dishant Chaudhary  
+- Shadow  
 
 ---
 
