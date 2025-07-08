@@ -70,7 +70,7 @@ Blitz{ALTa1_TaVAn_B0Gd_Mongolia}
 
 ### 👥 Team: 0bscuri7y
 
-- Dishant Chaudhary  
+- Shadow  
 
 ---
 
